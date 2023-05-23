@@ -1,4 +1,4 @@
-[![MasterHead](https://e0.pxfuel.com/wallpapers/460/450/desktop-wallpaper-qa-best-practices-to-deliver-stable-software-quality-assurance.jpg)
+![MasterHead](https://e0.pxfuel.com/wallpapers/460/450/desktop-wallpaper-qa-best-practices-to-deliver-stable-software-quality-assurance.jpg)
 <h1 align="center">Hi 👋, I'm Md. Golam An Nihal</h1>
 <h3 align="center">Experienced SQA Engineer from Bangladesh with a passion for quality and a proven track record of success in the software development industry. Seeking a challenging position where I can use my skills and experience to improve the quality of software products.</h3>
 
