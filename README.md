@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **annihal55@gmail.com**
 
-- 📄 Know about my experiences [View My Resume]([https://drive.google.com/file/d/1o9I4TxvAp9KpPdiue0NKyxwKTkwiXcgh/view?usp=sharing](https://drive.google.com/file/d/1BSy_68oxsXhUdmp7_Vy72shv04w64LpA/view?usp=sharing))
+- 📄 Know about my experiences [View My Resume](https://drive.google.com/file/d/1BSy_68oxsXhUdmp7_Vy72shv04w64LpA/view?usp=sharing)
 
 - ⚡ Fun fact **I am funny, active. I love to talk, hangout and gain knowledge.**
 
